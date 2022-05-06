@@ -7,4 +7,3 @@ LinkedIn :
 
 How to reach me :
 - 📫 : diegobouhaniche@live.fr
-- 📞 : +33634903095
